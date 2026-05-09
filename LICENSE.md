@@ -1,4 +1,4 @@
-
+Ulysses for macOS smart Script: calendar integration & custom shortcuts offers the most advanced Ulysses for macOS script, with calendar integration and custom shortcuts. Ideal
 
 
 
